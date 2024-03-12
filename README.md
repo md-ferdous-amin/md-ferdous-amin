@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **ferdous2403@gmail.com**
 
-- ⚡ Fun fact **Whatever the situation, laugh and be happy.**
+- ⚡ Fun fact **Whatever the situation is, laugh and be happy.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
